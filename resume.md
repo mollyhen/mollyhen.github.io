@@ -5,7 +5,7 @@ mollyh17@uw.edu
 
 # Summary
 
-Quick Summary (not objective) specifically highlighting why you qualify for the job.
+I am an undergraduate persuing a Geography major with a focus in geographic infomation system. Including this I am getting a minor in Environmental Science and Resource Management with a focus in remote sensing, LiDAR, and silviculture. I am searching for a job in the forestry business where I can use my remote sensing and GIS skills to manage and maintain forests. 
 
 
 # University of Washington (Seattle, WA)
